@@ -1,1 +1,0 @@
-# Ar-iCulture-Testsptgu7
